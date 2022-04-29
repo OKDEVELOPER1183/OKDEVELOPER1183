@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... With Programers and with any person
 - 📫 How to reach me ... Diyorbekokenman@gmail.com 
 Telegram: https://t.me/Ok_Developer
-Instagram: instagram.com/Diyorbek_1183
+Instagram: https://instagram.com/Diyorbek_1183
 Phone Number: +998942701183
 
 <!---
